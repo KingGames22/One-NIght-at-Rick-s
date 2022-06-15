@@ -1,2 +1,2 @@
-# One-NIght-at-Rick-s
+# One-Night-at-Rick-s
 Game
